@@ -31,3 +31,5 @@ PARZİVAL OLMASA BİR SİK YAPAMAZLAR NYS YA DAHASINI ATARDIMDA BANA KALSIN CAW 
 ![image](https://cdn.discordapp.com/attachments/985621963928133653/989325875474469005/unknown.png)
 ![image](https://user-images.githubusercontent.com/66915947/175182413-78310509-ee9e-4964-ba8b-53d3d3802a1d.png)
 ![image](https://media.discordapp.net/attachments/969526673856946176/985578115705221130/unknown.png?width=768&height=412)
+![image](https://user-images.githubusercontent.com/66915947/175187862-b844f12a-477e-47bd-a2da-7ff5decf758b.png)
+
