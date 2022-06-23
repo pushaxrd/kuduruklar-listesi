@@ -1,5 +1,13 @@
 köpek gibi kudurdunuz para teklif etipte kod dileniyor diye gosterdınız sıklemem sorun yoki .d
 
+snow daha hakımda bırsey bılmıyon eskı hesabım kapanmasaydı daha busuru ss cıkardı arkadaslar bukadar ben bunları yapmam ama fazla kudurdular
+
+ACER BOT DİLENME DET P1C KURUSU NİTRO ALACAK PARANIZ YOK
+
+BİDE SÖZDE MARİNOYU PATLATACAKLARMIS BEKLIYORUM YETKILER ACIK
+
+JAYLEN RAT YIYIP GUARDI KAPTIRTIN BENIM USTUME YIKMAYA CALISIYON SALAK..
+
 ![image](https://cdn.discordapp.com/attachments/945762901313085451/971052305950605392/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/985621963928133653/985711114446848010/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/985621963928133653/985711571206561812/unknown.png)
