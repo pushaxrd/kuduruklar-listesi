@@ -12,6 +12,9 @@ PARZİVAL PARA TEKLİF EDİYORUM AMA DİLENCİ OLARAK GOSTERIYON HIM .D
 
 PARZİVAL OLMASA BİR SİK YAPAMAZLAR NYS YA DAHASINI ATARDIMDA BANA KALSIN CAW BEBEKLERIM <3
 
+
+rat ye agla rat ye agla anca hüh..
+
 ![image](https://cdn.discordapp.com/attachments/945762901313085451/971052305950605392/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/985621963928133653/985711114446848010/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/985621963928133653/985711571206561812/unknown.png)
@@ -32,4 +35,5 @@ PARZİVAL OLMASA BİR SİK YAPAMAZLAR NYS YA DAHASINI ATARDIMDA BANA KALSIN CAW 
 ![image](https://user-images.githubusercontent.com/66915947/175182413-78310509-ee9e-4964-ba8b-53d3d3802a1d.png)
 ![image](https://media.discordapp.net/attachments/969526673856946176/985578115705221130/unknown.png?width=768&height=412)
 ![image](https://user-images.githubusercontent.com/66915947/175187862-b844f12a-477e-47bd-a2da-7ff5decf758b.png)
+![image](https://user-images.githubusercontent.com/66915947/175188014-eeb47158-583b-4185-9a49-4a392563dd65.png)
 
