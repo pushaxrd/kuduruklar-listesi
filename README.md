@@ -15,6 +15,8 @@ PARZİVAL OLMASA BİR SİK YAPAMAZLAR NYS YA DAHASINI ATARDIMDA BANA KALSIN CAW 
 
 rat ye agla rat ye agla anca hüh..
 
+tokenler elaf yapmıs 50tl bile etmez dıyorda 500 uye token ztn 50 tl aq sana verdıgım sw 14kdı ne anlatıyon yarrmm qwdwq
+
 ![image](https://cdn.discordapp.com/attachments/945762901313085451/971052305950605392/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/985621963928133653/985711114446848010/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/985621963928133653/985711571206561812/unknown.png)
@@ -36,4 +38,5 @@ rat ye agla rat ye agla anca hüh..
 ![image](https://media.discordapp.net/attachments/969526673856946176/985578115705221130/unknown.png?width=768&height=412)
 ![image](https://user-images.githubusercontent.com/66915947/175187862-b844f12a-477e-47bd-a2da-7ff5decf758b.png)
 ![image](https://user-images.githubusercontent.com/66915947/175188014-eeb47158-583b-4185-9a49-4a392563dd65.png)
+![image](https://user-images.githubusercontent.com/66915947/175188729-498b2f99-b08f-44c7-85c3-5f007063cc14.png)
 
